@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Rehaan/Re
+- 👀 I’m interested in tech/robotics/swimming/literature/theatre
+- 🌱 I’m currently learning Intro to CS
+- 😄 Pronouns: He/Him
